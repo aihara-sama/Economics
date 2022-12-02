@@ -2,4 +2,4 @@
 
 > ### `Description`
 >
-> The study of pruduction, employment, prices, and policies on a nationwide scale
+> The study of pruduction, employment, prices, and policies ( the entire economy rather than individual markets ) on a nationwide scale
