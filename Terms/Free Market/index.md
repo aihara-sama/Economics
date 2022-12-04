@@ -1,4 +1,4 @@
-# Free Merket ( Capitalist Economies )
+# Free Market ( Capitalist Economies )
 
 > ### `Description`
 
